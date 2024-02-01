@@ -1,6 +1,6 @@
 # Flyint飞数机场官网地址
 
-最新地址：[flyint999.com](https://www.flyint999.com/)
+最新地址：[flyintpro.com](https://www.flyintpro.com/#/register?code=EKIKk5md)
 
 ## Flyint飞数机场简介
 
